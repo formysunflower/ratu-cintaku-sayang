@@ -1,1 +1,0 @@
-# ratu-cintaku-sayang
